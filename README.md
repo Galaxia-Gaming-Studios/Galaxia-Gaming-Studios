@@ -3,7 +3,8 @@ Soy De Una Empresa Pequeña De Galaxia Gaming Studios
 
 #### Redes Sociales
 
-- **WhatsApp Canal:** [Galaxia Gaming Studios](https://whatsapp.com/channel/0029VaZZ77zDp2Q0BBx87X1Z)
+- **WhatsApp Canal:**
+- [Galaxia Gaming Studios](https://whatsapp.com/channel/0029VaZZ77zDp2Q0BBx87X1Z)
 
 - **Telegram Canal:** 
 
